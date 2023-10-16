@@ -1,3 +1,6 @@
+![image](https://github.com/TheAcusticMan/TheAcusticMan/assets/144243344/b5524e16-3bb7-44ad-a282-3dfc561b46a2)
+
+
 - 👋 Hi, I’m @TheAcusticMan
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
